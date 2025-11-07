@@ -1,2 +1,2 @@
 # bruceraup.github.io
-Home of barecreekjazz
+Public profile goes here.
